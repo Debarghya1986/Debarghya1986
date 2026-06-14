@@ -27,10 +27,10 @@
 ## Education
 
 **Indian Institute of Science (IISc)**  
-M.Tech — Signal Processing & Machine Learning (2024–2026)
+M.Tech — Signal Processing & Machine Learning'26 (Gold Medalist)
 
 **Jadavpur University**  
-B.E — Electrical Engineering(Silver Medalist)
+B.E — Electrical Engineering'23 (Silver Medalist)
 
 ---
 
